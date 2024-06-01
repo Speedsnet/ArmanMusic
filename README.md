@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 MrArman Music 」──
+    ──「 𝗞ʀɪsʜ Music 」──
 </h2>
 
 <p align="center">
